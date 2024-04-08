@@ -1,2 +1,2 @@
 # 108
-108 Sun Salutations
+108 Sun Salutations.
